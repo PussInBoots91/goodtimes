@@ -1,3 +1,1 @@
-# goodtimes
-
-There is so much paiin 
+they 
